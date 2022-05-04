@@ -4,3 +4,5 @@ dnes je streda 4.5. 2022
 
 
 dobre si
+
+vcera asi nie no 
